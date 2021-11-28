@@ -35,9 +35,7 @@
 
 📌 ```𝙲𝚛𝚎𝚊𝚝𝚎𝚛```
 
- 
-
-[![Kaweeshachamodk](https://github.com/Kaweeshachamodk?size=300)](https://github.com/Kaweeshachamodk) 
+ [![Kaweeshachamodk](https://github.com/Kaweeshachamodk?size=300)](https://github.com/Kaweeshachamodk) 
 
   
 
