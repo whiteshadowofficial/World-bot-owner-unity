@@ -44,7 +44,7 @@ _*Other special mambers*_
 
 ❥https://github.com/afnanplk
 
-🔥 *❱:  ##farhan-dqz*##
+🔥 *❱:  @farhan-dqz*
 
 ❥https://github.com/farhan-dqz
 
