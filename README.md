@@ -74,6 +74,20 @@
  
 [@Amal-ser](https://github.com/Amal-ser)
 
+[![RAVANA-SL](https://github.com/RAVANA-SL.png?size=300)](https://github.com/RAVANA-SL)
+ 
+  [@RAVANA-SL](https://github.com/RAVANA-SL)
+
+[![Aqua-Snake](https://github.com/Aqua-Snake.png?size=300)](https://github.com/Aqua-Snake)
+ 
+  [@Aqua-Snake](https://github.com/Aqua-Snake)
+[![radhin123](https://github.com/radhin123.png?size=300)](https://github.com/radhin123)
+ 
+  [@radhin123](https://github.com/radhin123)
+[![xmain12](https://github.com/xmain12.png?size=300)](https://github.com/xmain12)
+ 
+  [@xmain12](https://github.com/xmain12)
+
 
 📌 ```𝙲𝚊𝚙𝚝𝚊𝚒𝚗```
 
