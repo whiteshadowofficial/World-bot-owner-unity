@@ -49,20 +49,20 @@ _*Other special mambers*_
 🔥 *❱: _TOXIC-DEVIL*_
 ❥https://github.com/TOXIC-DEVIL
 
-🔥 *❱:terror-boy*
+🔥 *❱: _terror-boy*_
 ❥https://github.com/terror-boy
 
 
-🔥 *❱:Hisham-Muhammed*
+🔥 *❱: _Hisham-Muhammed*_
 ❥https://github.com/Hisham-Muhammed
 
-🔥 *❱:Amal-ser*
+🔥 *❱: _Amal-ser*_
 ❥https://github.com/Amal-ser
 
-🔥 *❱:radhin123*
+🔥 *❱: _radhin123*_
 ❥https://github.com/radhin123
 
-🔥 *❱:RAVANA-SL*
+🔥 *❱: _RAVANA-SL*_
 ❥https://github.com/RAVANA-SL
 
 🔥 *❱:Aqua-Snake*
