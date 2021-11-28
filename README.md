@@ -96,8 +96,6 @@
  
   [@Finox99](https://github.com/Finox99)
 
- 
-  [@Fxc7](https://github.com/Fxc7)
 [![moo-d](https://github.com/moo-d.png?size=300)](https://github.com/moo-d)
  
   [@moo-d](https://github.com/moo-d)
