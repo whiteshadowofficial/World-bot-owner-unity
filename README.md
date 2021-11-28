@@ -5,100 +5,111 @@
     
 ## [![](https://telegra.ph/file/ef785489ce7290fa5beb2.jpg?size=100)](https://telegra.ph/file/ef785489ce7290fa5beb2.jpg) 
 
-╔═════════════════════╗
+´´´╔═════════════════════╗
 
 
+*𝐖𝐎𝐑𝐋𝐃 𝐁𝐎𝐓 𝐎𝐖𝐍𝐄𝐑𝐒 𝐔𝐍𝐈𝐓𝐘*
 
 ᴘᴏᴡᴇʀᴅ ʙʏ ɢɪᴛʜᴜʙ
 [ https://github.com/ ]
 
 
 
-⠀⠀  ⣀⣴⣶⠾⠿⠿⣶⣦⣄⠀⠀⠀
+⠀⠀ ⣀⣴⣶⠾⠿⠿⣶⣦⣄⠀⠀⠀
 ⠀⢠⣾⠟⠉⠀⠀⠀⠀⠀⠈⠻⣷⡄⠀
 ⢠⣿⠃⠀⣴⣶⠀⠀⠀⠀⠀⠀⠈⢿⡆
 ⣼⡇⠀⠀⣿⣿⠁⠀⠀⠀⠀⠀⠀⢸⣿
 ⢻⡇⠀⠀⠈⢻⣦⣀⢀⣤⣄⠀⠀⢸⣿
 ⠘⣿⡄⠀⠀⠀⠈⠻⠿⣿⠿⠀⢀⣾⠇
 ⠀⣿⠃⣀⡀⠀⠀⠀⠀⠀⢀⣴⡿⡿
-⣸⠿⠟⠛⠻⠿⣶⣶⣶⠿⠟⠋⠀
+⣸⠿⠟⠛⠻⠿⣶⣶⣶⠿⠟⠋
 
 
 
+*𝐌𝐀𝐌𝐁𝐄𝐑𝐒 𝐋𝐈𝐒𝐓 𝐎𝐅 𝐖𝐎𝐑𝐋𝐃 𝐁𝐎𝐓 𝐎𝐖𝐍𝐄𝐑𝐒 𝐔𝐍𝐈𝐓𝐘™*
 
-𝐌𝐀𝐌𝐁𝐄𝐑𝐒 𝐋𝐈𝐒𝐓 𝐎𝐅 𝐖𝐎𝐑𝐋𝐃 𝐁𝐎𝐓 𝐎𝐖𝐍𝐄𝐑𝐒 𝐔𝐍𝐈𝐓𝐘™
+
+📌 *𝙲𝚊𝚙𝚝𝚊𝚒𝚗*
+
+🔥 *❱:Lasiya*
+❥https://github.com/lasiyaWA
 
 
-🔥 *❱:*afnanplk
-❥https://github.com/afnanplk
+📌 *𝚅𝚒𝚌𝚎 𝙲𝚊𝚙𝚝𝚊𝚒𝚗*
 
-🔥 *❱:*farhan-dqz
-❥https://github.com/farhan-dqz
-
-🔥 *❱:*TOXIC-DEVIL
-❥https://github.com/TOXIC-DEVIL
-
-🔥 *❱:*terror-boy
-❥https://github.com/terror-boy
-
-🔥 *❱:*MrChaby
+🔥 *❱:MrChaby*
 ❥https://github.com/MrChaby
 
-🔥 *❱:*Hisham-Muhammed
-❥https://github.com/Hisham-Muhammed
+📌 *𝙲𝚛𝚎𝚊𝚝𝚎𝚛*
 
-🔥 *❱:*Amal-ser
-❥https://github.com/Amal-ser
-
-🔥 *❱:*Amal-ser
-❥https://github.com/Amal-ser
-
-🔥 *❱:*radhin123
-❥https://github.com/radhin123
-
-🔥 *❱:*Kaweeshachamodk
+🔥 *❱:Kaweeshachamod*
 ❥https://github.com/Kaweeshachamodk
 
-🔥 *❱:*RAVANA-SL
+
+*Other mambers*
+
+🔥 *❱: afnanplk*
+❥https://github.com/afnanplk
+
+🔥 *❱: farhan-dqz*
+❥https://github.com/farhan-dqz
+
+🔥 *❱:TOXIC-DEVIL*
+❥https://github.com/TOXIC-DEVIL
+
+🔥 *❱:terror-boy*
+❥https://github.com/terror-boy
+
+
+🔥 *❱:Hisham-Muhammed*
+❥https://github.com/Hisham-Muhammed
+
+🔥 *❱:Amal-ser*
+❥https://github.com/Amal-ser
+
+🔥 *❱:radhin123*
+❥https://github.com/radhin123
+
+🔥 *❱:RAVANA-SL*
 ❥https://github.com/RAVANA-SL
 
-🔥 *❱:*Aqua-Snake
+🔥 *❱:Aqua-Snake*
 ❥https://github.com/Aqua-Snake
 
-🔥 *❱:*xmain12
+🔥 *❱:xmain12*
 ❥https://github.com/xmain12
 
-🔥 *❱:*Finox99
+🔥 *❱:Finox99*
 ❥http://github.com/Finox99
 
-🔥 *❱:*Fxc7
+🔥 *❱:Fxc7*
 ❥https://github.com/Fxc7
 
-🔥 *❱:*moo-d
+🔥 *❱:moo-d*
 ❥https://github.com/moo-d
 
-🔥 *❱:*WanX123
+🔥 *❱:WanX123*
 ❥http://github.com/WanX123
 
-🔥 *❱:*Ahmadzakix
+🔥 *❱:Ahmadzakix*
 ❥https://github.com/Ahmadzakix
 
-🔥 *❱:*agungwp26
+🔥 *❱:agungwp26*
 ❥http://github.com/agungwp26
 
-🔥 *❱:*YourAlfabet
+🔥 *❱:YourAlfabet*
 ❥http://github.com/YourAlfabet
 
-🔥 *❱:*mrfzvx12
+🔥 *❱:mrfzvx12*
 ❥http://github.com/mrfzvx12
 
-🔥 *❱:*Fxc7
+🔥 *❱:Fxc7*
 ❥https://github.com/Fxc7
 
-🔥 *❱:*agentmax123
+🔥 *❱:agentmax123*
 ❥https://github.com/agentmax123
 
-🔥 *❱:*AiDarkEzio
+🔥 *❱:AiDarkEzio*
 ❥https://github.com/AiDarkEzio
 
-™
+™```
