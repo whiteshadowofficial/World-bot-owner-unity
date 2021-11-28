@@ -26,24 +26,24 @@
 
   
 
-  [lasiyaWA](https://github.com/lasiyaWA)
+  [@lasiyaWA](https://github.com/lasiyaWA)
 
   
 
-📌 ``𝚅𝚒𝚌𝚎 𝙲𝚊𝚙𝚝𝚊𝚒𝚗```
+📌 ```𝚅𝚒𝚌𝚎 𝙲𝚊𝚙𝚝𝚊𝚒𝚗```
 
 [![MrChaby](https://github.com/MrChaby.png?size=300)](https://github.com/MrChaby)
 
   
 
-  [MrChaby](https://github.com/MrChaby)
+  [@MrChaby](https://github.com/MrChaby)
 
   
 📌 ```𝙲𝚛𝚎𝚊𝚝𝚎𝚛```
 
 [![Kaweeshachamodk](https://github.com/Kaweeshachamodk.png?size=300)](https://github.com/Kaweeshachamodk)
   
-  [Kaweeshachamodk](https://github.com/Kaweeshachamodk)
+  [@Kaweeshachamodk](https://github.com/Kaweeshachamodk)
 
 
   
@@ -52,11 +52,11 @@
   
 [![Farhan-Dqz](https://github.com/farhan-dqz.png?size=300)](https://github.com/farhan-dqz) 
   
-[farhan-dqz](https://github.com/farhan-dqz) 
+[@farhan-dqz](https://github.com/farhan-dqz) 
   
   [![afnanplk](https://github.com/afnanplk.png?size=300)](https://github.com/afnanplk)
  
-  [afnanplk](https://github.com/afnanplk)
+  [@afnanplk](https://github.com/afnanplk)
   
 
 
