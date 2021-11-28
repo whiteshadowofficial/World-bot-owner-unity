@@ -92,40 +92,41 @@
  
   [@xmain12](https://github.com/xmain12)
 
+[![Finox99](https://github.com/Finox99.png?size=300)](https://github.com/Finox99)
+ 
+  [@Finox99](https://github.com/Finox99)
+[![Fxc7](https://github.com/Fxc7.png?size=300)](https://github.com/Fxc7)
+ 
+  [@Fxc7](https://github.com/Fxc7)
+[![moo-d](https://github.com/moo-d.png?size=300)](https://github.com/moo-d)
+ 
+  [@moo-d](https://github.com/moo-d)
+[![WanX123](https://github.com/WanX123.png?size=300)](https://github.com/WanX123)
+ 
+  [@WanX123](https://github.com/WanX123)
+[![Ahmadzakix](https://github.com/Ahmadzakix.png?size=300)](https://github.com/Ahmadzakix)
+ 
+  [@Ahmadzakix](https://github.com/Ahmadzakix)
+[![agungwp26](https://github.com/agungwp26.png?size=300)](https://github.com/agungwp26)
+ 
+  [@agungwp26](https://github.com/agungwp26)
+[![YourAlfabet](https://github.com/YourAlfabet.png?size=300)](https://github.com/YourAlfabet)
+ 
+  [@YourAlfabet](https://github.com/YourAlfabet)
+[![mrfzvx12](https://github.com/mrfzvx12.png?size=300)](https://github.com/mrfzvx12)
+ 
+  [@mrfzvx12](https://github.com/mrfzvx12)
+[![Fxc7](https://github.com/Fxc7.png?size=300)](https://github.com/Fxc7)
+ 
+  [@Fxc7](https://github.com/Fxc7)
+[![agentmax123](https://github.com/agentmax123.png?size=300)](https://github.com/agentmax123)
+ 
+  [@agentmax123](https://github.com/agentmax123)
+[![AiDarkEzio](https://github.com/AiDarkEzio.png?size=300)](https://github.com/AiDarkEzio)
+ 
+  [@AiDarkEzio](https://github.com/AiDarkEzio)
 
-📌 ```𝙲𝚊𝚙𝚝𝚊𝚒𝚗```
 
-🔥 *❱:Lasiya*
-
-❥https://github.com/lasiyaWA
-
-
-📌 ``𝚅𝚒𝚌𝚎 𝙲𝚊𝚙𝚝𝚊𝚒𝚗```
-
-🔥 *❱:MrChaby*
-❥https://github.com/MrChaby
-
-📌 ```𝙲𝚛𝚎𝚊𝚝𝚎𝚛```
-
-🔥 *❱:Kaweeshachamod*
-❥https://github.com/Kaweeshachamodk
-
-
-_*Other special mambers*_
-
-🔥 *❱:  _afnanplk*_
-
-❥https://github.com/afnanplk
-
-🔥 *❱:  @farhan-dqz*
-
-❥https://github.com/farhan-dqz
-
-🔥 *❱: _TOXIC-DEVIL*_
-❥https://github.com/TOXIC-DEVIL
-
-🔥 *❱: _terror-boy*_
-❥https://github.com/terror-boy
 
 
 
