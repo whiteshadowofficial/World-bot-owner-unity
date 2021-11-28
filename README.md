@@ -62,6 +62,10 @@
  
 [@TOXIC-DEVIL](https://github.com/TOXIC-DEVIL)
 
+[![terror-boy](https://github.com/terror-boy.png?size=300)](https://github.com/terror-boy)
+ 
+[@terror-boy](https://github.com/terror-boy)
+
 
 
 📌 ```𝙲𝚊𝚙𝚝𝚊𝚒𝚗```
