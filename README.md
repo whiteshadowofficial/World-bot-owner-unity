@@ -13,7 +13,10 @@
 ```ᴘᴏᴡᴇʀᴅ ʙʏ ɢɪᴛʜᴜʙ```
 [ https://github.com/ ]
 
-
+[![lasiyaWA](https://github.com/lasiyaWA.png?size=100)](https://github.com/lasiyaWA)
+  
+  [lasiyaWA](https://github.com/lasiyaWA)
+  
 [![Farhan-Dqz](https://github.com/farhan-dqz.png?size=100)](https://github.com/farhan-dqz) 
   
 [farhan-dqz](https://github.com/farhan-dqz) 
