@@ -54,10 +54,14 @@
   
 [@farhan-dqz](https://github.com/farhan-dqz) 
   
-  [![afnanplk](https://github.com/afnanplk.png?size=300)](https://github.com/afnanplk)
+[![afnanplk](https://github.com/afnanplk.png?size=300)](https://github.com/afnanplk)
  
-  [@afnanplk](https://github.com/afnanplk)
-  
+[@afnanplk](https://github.com/afnanplk)
+
+[![TOXIC-DEVIL](https://github.com/TOXIC-DEVIL.png?size=300)](https://github.com/TOXIC-DEVIL)
+ 
+[@TOXIC-DEVIL](https://github.com/TOXIC-DEVIL)
+
 
 
 📌 ```𝙲𝚊𝚙𝚝𝚊𝚒𝚗```
