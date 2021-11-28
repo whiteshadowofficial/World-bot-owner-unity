@@ -95,7 +95,7 @@
 [![Finox99](https://github.com/Finox99.png?size=300)](https://github.com/Finox99)
  
   [@Finox99](https://github.com/Finox99)
-[![Fxc7](https://github.com/Fxc7.png?size=300)](https://github.com/Fxc7)
+
  
   [@Fxc7](https://github.com/Fxc7)
 [![moo-d](https://github.com/moo-d.png?size=300)](https://github.com/moo-d)
