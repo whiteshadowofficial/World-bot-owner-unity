@@ -13,15 +13,15 @@
 ```ᴘᴏᴡᴇʀᴅ ʙʏ ɢɪᴛʜᴜʙ```
 [ https://github.com/ ]
 
-[![lasiyaWA](https://github.com/lasiyaWA.png?size=500)](https://github.com/lasiyaWA)
+[![lasiyaWA](https://github.com/lasiyaWA.png?size=300)](https://github.com/lasiyaWA)
   
   [lasiyaWA](https://github.com/lasiyaWA)
   
-[![Farhan-Dqz](https://github.com/farhan-dqz.png?size=500)](https://github.com/farhan-dqz) 
+[![Farhan-Dqz](https://github.com/farhan-dqz.png?size=300)](https://github.com/farhan-dqz) 
   
 [farhan-dqz](https://github.com/farhan-dqz) 
   
-  [![afnanplk](https://github.com/afnanplk.png?size=500)](https://github.com/afnanplk)
+  [![afnanplk](https://github.com/afnanplk.png?size=300)](https://github.com/afnanplk)
  
   [afnanplk](https://github.com/afnanplk)
   
