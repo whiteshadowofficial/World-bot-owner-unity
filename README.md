@@ -38,15 +38,15 @@
 ❥https://github.com/Kaweeshachamodk
 
 
-*Other mambers*
+_*Other special mambers*_
 
-🔥 *❱: afnanplk*
+🔥 *❱: _afnanplk*_
 ❥https://github.com/afnanplk
 
-🔥 *❱: farhan-dqz*
+🔥 *❱: _farhan-dqz*_
 ❥https://github.com/farhan-dqz
 
-🔥 *❱:TOXIC-DEVIL*
+🔥 *❱: _TOXIC-DEVIL*_
 ❥https://github.com/TOXIC-DEVIL
 
 🔥 *❱:terror-boy*
