@@ -70,6 +70,10 @@
  
 [@Hisham-Muhammed](https://github.com/Hisham-Muhammed)
 
+[![Amal-ser](https://github.com/Amal-ser.png?size=300)](https://github.com/Amal-ser)
+ 
+[@Amal-ser](https://github.com/Amal-ser)
+
 
 📌 ```𝙲𝚊𝚙𝚝𝚊𝚒𝚗```
 
