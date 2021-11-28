@@ -58,7 +58,7 @@ _*Other special mambers*_
 🔥 *❱: _Hisham-Muhammed*_
 ❥https://github.com/Hisham-Muhammed
 
-🔥 *❱: _Amal-ser*_
+🔥 */❱: _Amal-ser*/
 ❥https://github.com/Amal-ser
 
 🔥 *❱: _radhin123*_
