@@ -14,8 +14,7 @@
 [ https://github.com/ ]
 
 
-[![Farhan-Dqz](https://github.com/farhan-dqz.png?size=100)](https://github.com/farhan-dqz) | [![TOXIC-DEVIL](https://github.com/TOXIC-DEVIL.png?size=100)](https://github.com/TOXIC-DEVIL) |  [![TOXIC4L!3N](https://github.com/terror-boy.png?size=100)](https://github.com/terror-boy) | [![afnanplk](https://github.com/afnanplk.png?size=100)](https://github.com/afnanplk) 
-
+[![Farhan-Dqz](https://github.com/farhan-dqz.png?size=100)](https://github.com/farhan-dqz) |
 
  _*𝐌𝐀𝐌𝐁𝐄𝐑𝐒 𝐋𝐈𝐒𝐓 𝐎𝐅 𝐖𝐎𝐑𝐋𝐃 𝐁𝐎𝐓 𝐎𝐖𝐍𝐄𝐑𝐒 𝐔𝐍𝐈𝐓𝐘™*_
 
