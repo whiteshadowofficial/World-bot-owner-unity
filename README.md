@@ -31,21 +31,21 @@
 
 
 
- *𝐌𝐀𝐌𝐁𝐄𝐑𝐒 𝐋𝐈𝐒𝐓 𝐎𝐅 𝐖𝐎𝐑𝐋𝐃 𝐁𝐎𝐓 𝐎𝐖𝐍𝐄𝐑𝐒 𝐔𝐍𝐈𝐓𝐘™*
+ ```*𝐌𝐀𝐌𝐁𝐄𝐑𝐒 𝐋𝐈𝐒𝐓 𝐎𝐅 𝐖𝐎𝐑𝐋𝐃 𝐁𝐎𝐓 𝐎𝐖𝐍𝐄𝐑𝐒 𝐔𝐍𝐈𝐓𝐘™*```
 
 
-```📌 *𝙲𝚊𝚙𝚝𝚊𝚒𝚗*```
+📌 ```*𝙲𝚊𝚙𝚝𝚊𝚒𝚗*```
 
 🔥 *❱:Lasiya*
 ❥https://github.com/lasiyaWA
 
 
-📌 *𝚅𝚒𝚌𝚎 𝙲𝚊𝚙𝚝𝚊𝚒𝚗*
+📌 ``*𝚅𝚒𝚌𝚎 𝙲𝚊𝚙𝚝𝚊𝚒𝚗*```
 
 🔥 *❱:MrChaby*
 ❥https://github.com/MrChaby
 
-📌 *𝙲𝚛𝚎𝚊𝚝𝚎𝚛*
+📌 ```*𝙲𝚛𝚎𝚊𝚝𝚎𝚛*```
 
 🔥 *❱:Kaweeshachamod*
 ❥https://github.com/Kaweeshachamodk
