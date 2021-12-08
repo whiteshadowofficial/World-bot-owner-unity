@@ -97,9 +97,9 @@
  
   [@xmain12](https://github.com/xmain12)
 
-[![Finox99](https://github.com/Finox99.png?size=300)](https://github.com/Finox99)
+[![Prabavi](https://github.com/prabavi.png?size=300)](https://github.com/prabavi)
  
-  [@Finox99](https://github.com/Finox99)
+  [@Prabavi](https://github.com/prabavi)
 
 [![moo-d](https://github.com/moo-d.png?size=300)](https://github.com/moo-d)
  
